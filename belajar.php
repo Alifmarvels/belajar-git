@@ -1,0 +1,1 @@
+belajar ga gampang
